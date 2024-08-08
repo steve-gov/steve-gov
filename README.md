@@ -7,3 +7,4 @@ Steve Kovacs
   - 2022-2023 OMB-EOP (Detailed to VA)
 - Dept of Veterans Affairs
   - 2023-Present Director of Product, VES
+  - 2024-Present Acting Director, DHx/p, Digital Health Office, VHA
