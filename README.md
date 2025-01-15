@@ -6,5 +6,7 @@ Steve Kovacs
   - 2021-2022 OMB-EOP (ED, SBA)
   - 2022-2023 OMB-EOP (Detailed to VA)
 - Dept of Veterans Affairs
-  - 2023-Present Director of Product, VES
+  - 2023-2025 Director of Product, VES
   - 2024-2024 Acting Director, DHx/p, Digital Health Office, VHA
+- Dept of Interior
+  - 2025-Present Director of Product, National Park Service
